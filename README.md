@@ -1,0 +1,1 @@
+# IP-Research-Analyst-Content-Exercise
